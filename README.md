@@ -1,7 +1,5 @@
 # List
 
-In now particvular order.
-
 [Glenmore GTX Ankle Gaiter](https://www.trekmates.co.uk/collections/gore-tex-gaiters/products/glenmore-gtx-ankle-gaiter)
 
 
